@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/b0e5e562-675c-47ef-983f-f9f833c12fa8)
+
 <p align="justify">
 El trágico hundimiento del RMS Titanic en la noche del 14 al 15 de abril de 1912, durante su viaje inaugural desde Southampton hacia Nueva York, es uno de los desastres marítimos más infames de la historia. De las aproximadamente 2.224 personas a bordo, más de 1.500 perdieron la vida, convirtiendo este evento en una tragedia de proporciones colosales. A pesar de las innovaciones tecnológicas de la época, como la compartimentación hermética diseñada para limitar el daño en caso de una brecha en el casco, el Titanic se hundió tras chocar con un iceberg en el Atlántico Norte.
 </p>
