@@ -1,5 +1,6 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b0e5e562-675c-47ef-983f-f9f833c12fa8" alt="Descripción de la imagen">
+  ![Uploading image.png…]()
+">
 </p>
 
 <p align="justify">  
