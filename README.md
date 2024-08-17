@@ -1,5 +1,5 @@
 <p align="center">
-![image](https://github.com/user-attachments/assets/da8b61f2-0b4c-49c1-85e8-2c47f504b20c)
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.meteored.com.ar%2Fnoticias%2Factualidad%2Ftitanic-10-curiosidades-sobre-el-naufragio-mas-famoso-de-la-historia.html&psig=AOvVaw1zcg9eIdxCdHuR6kt1eo-M&ust=1723941748177000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJiGs8_l-ocDFQAAAAAdAAAAABAE 
 </p>
 
 <p align="justify">  
