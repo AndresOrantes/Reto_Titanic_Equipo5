@@ -10,5 +10,3 @@ de supervivencia basadas en diversas características. Este análisis no solo ti
 haber tomado decisiones más informadas en el momento.
 </p>
 
-Link de reporte de la primera entrega
-https://docs.google.com/document/d/1Eo93z0zaHKGbxJlsq-vNe2QT4p7XxKaGTRJZ6psONBY/edit?usp=sharing 
