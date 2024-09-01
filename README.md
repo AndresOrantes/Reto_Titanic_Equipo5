@@ -9,4 +9,5 @@ Hoy en día, con el avance de la tecnología, es posible utilizar técnicas de M
 de supervivencia basadas en diversas características. Este análisis no solo tiene un valor académico y de comprensión histórica, sino que también permite explorar cómo se podrían
 haber tomado decisiones más informadas en el momento.
 </p>
+El Reporte se encuentra bajo el nombre Reporte Titanic
 
